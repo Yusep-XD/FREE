@@ -8,7 +8,7 @@
 
 ## HASIL
 
-[![Screenshot-20221012-192504.jpg](https://i.postimg.cc/Zn6fHNF8/Screenshot-20221012-192504.jpg)](https://postimg.cc/ct4M4rzC)
+[![Screenshot-20221012-192504.jpg](https://i.postimg.cc/vZ1c1vQS/Screenshot-20221012-192504.jpg)](https://postimg.cc/Bj0qkHPx)
 
 ## <b>installation</b>
 
